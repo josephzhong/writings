@@ -1,1 +1,1 @@
-Please go to https://ling.chengdu7.com/#writings
+Contents have been moved to https://ling.chengdu7.com/#writings
